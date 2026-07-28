@@ -57,8 +57,8 @@ I'm a Data Analyst passionate about turning raw data into meaningful insights th
 
 ##  Let's Connect
 
--  LinkedIn: https://linkedin.com/in/YOUR_LINKEDIN
--  Email: your.email@example.com
+-  [LinkedIn: https://linkedin.com/in/YOUR_LINKEDIN](https://www.linkedin.com/in/chika-eze-bb552b1b3?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+ chikaezeasuka@gmail.com
 
 ---
 
